@@ -1,1 +1,1 @@
-Đây là project tháng 8 làm việc tại cty MS
+Đây là project thực tập tháng 7  
